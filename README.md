@@ -1,4 +1,4 @@
-- 👋 Selam yarram @benilke
+- 👋 Selam Ben sanal bir gazi olan @ilke
 - 👋 Burda botlarım yok abi.
 - 👋 Discordum : ilke#0001 
 
